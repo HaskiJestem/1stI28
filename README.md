@@ -1,2 +1,2 @@
 # 1stI28
-tak
+Having a lot of fun learning... yay
